@@ -31,6 +31,7 @@ Interests
 * Legos. Costly problem
 * Gaming. Board games and Video games
 * Wellfleet MA. My happy place.
+* Vibe Codeing with Claude (my 2 recent ones: http://tidecal.ezcada.com/, http://ezcada.com)
 
 
 ### My role
